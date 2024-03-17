@@ -1,2 +1,13 @@
-# ro-blacklist-khim
-blacklist for my game
+nghiadeptrai1509
+anhbumbe
+me1wacountry
+letrivu2007
+duyboro88
+DxgBaoMeBanBeo
+WZH479
+114514nmojoj
+Bankai348
+miniwordemgaimua1234
+zoethewofl
+KillerBe213
+pamfomi
